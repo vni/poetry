@@ -3,6 +3,82 @@
 
 
 
+13.05.2022
+==========
+it only depends on you how long
+how I'm calm or how I'm strong
+
+only the dark night comes along
+with empty hugs of freezing cold
+
+and in this darkness I miss you
+as light of sun, as shine of moon
+
+I'm like a leaf on stormy wind
+without your touch, your fingertip
+
+yes, I'm addicted to your smile
+your open wide eyes sparkling bright
+
+if there is anything I need
+it would be yours pretentious breath
+
+oh come along with me I'll show
+dark human heart with sorrow hole
+
+in complete darkness or bright light
+it doesn't matter ...
+
+
+
+
+Стих А. 2.02.2022
+=================
+порой я обожаю
+как ты дышишь
+и сигаретный дым
+как выпускаешь из себя
+
+как ты молчишь
+и как с серьезным взглядом слышишь
+пронзая тишину
+пронзив так и себя
+
+я обожаю
+рук твоих касаться
+и тихо гладить
+в лунной тишине
+
+и как ты вздрагиваешь
+открыто, без малейшего стиснения
+и взгляд прямой
+что ощущал я на себе
+
+я обожаю твои руки
+я в них лицом готовый вечность утопать
+топить в них мыслей своих муки
+и теплоту из них, и нежность испивать
+
+я обожаю смех твой мягкий
+           и улыбку
+как взглядом теплым
+топишь камень ты во мне
+
+и как в безхитростной
+ребячески наивной и смешной попытке
+в объятия мои готова ты отдаться мне
+
+как на закате дня
+себя всю, без остатка, доверяешь
+свою ранимость,
+     чувственность,
+как есть
+и как во мне своё тепло ты отражаешь
+и как его хватает нас обоих греть
+
+
+
+
 19.07.2021 Киев
 ===============
 Оставь меня здесь, на берегу, у причала
